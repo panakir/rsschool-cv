@@ -1,1 +1,1 @@
-# rsschool-cv
+https://panakir.github.io/rsschool-cv/cv
